@@ -23,6 +23,7 @@ Comes in multiple parts: the installation instructions and the different layers 
 
 ## Contributor
 
-I Hava a Best team.They support a Lot....
+Having a supportive team can make a big difference in your life and work. They can help you accomplish your goals, overcome challenges, and provide a sense of community and belonging. It's important to appreciate and recognize their contributions, and to make sure you show your gratitude for their support. 
+
 
 Enjoy Game!! Happy Coding..
